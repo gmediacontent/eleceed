@@ -1,1 +1,2 @@
-# eleceed
+# Eleceed
+Ji Woo est un jeune homme au bon cœur qui utilise son pouvoir pour faire secrètement du monde un meilleur endroit et qui adore s'occuper des chats errants de son quartier. Kayden est un agent secret en fuite, qui se retrouve coincé dans le corps d'un ... vieux chat potelé. Ensemble, armés des super pouvoirs de Ji Woo et des conseils de Kayden, ils feront face à plusieurs épreuves.
